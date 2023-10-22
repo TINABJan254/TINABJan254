@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @TINABJan254
+- 👋 Hi, I’m Thien Ban
 - 👀 I’m interested in sleeping
 - 🌱 I’m currently learning nothing
 
